@@ -197,3 +197,6 @@ Contribuições são bem-vindas! Sinta-se à vontade para:
 
 ---
 *Última atualização: Dezembro 2024*
+
+@xerlokt
+
